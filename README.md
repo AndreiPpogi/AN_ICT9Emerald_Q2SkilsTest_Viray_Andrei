@@ -1,0 +1,1 @@
+# AN_ICT9Emerald_Q2SkilsTest_Viray_Andrei
